@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @heloisa rigoni.
-- estudante do governo,aluna do Antônio Iglesias 
+- 👋 olá, meu nome é @heloisa rigoni.
+- 16y🫡❤️
+- sou estudante do governo,aluna do Antônio Iglesias
